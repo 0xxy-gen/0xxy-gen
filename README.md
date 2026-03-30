@@ -2,7 +2,7 @@
 
 I’m interested in space, engineering, music, and the kinds of ideas that make the future feel a little closer.
 
-A lot of what I’m drawn to lives at the intersection of deep tech, creative thinking, and ambitious systems — especially in space and frontier technology.
+A lot of what I’m drawn to lives at the intersection of deep tech, creative thinking, and ambitious systems, especially in space and frontier technology.
 
 ## A little about me
 - 🚀 I’m passionate about space, engineering, and frontier technology  
